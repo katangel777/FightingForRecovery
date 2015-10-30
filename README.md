@@ -1,0 +1,2 @@
+# FightingForRecovery
+My website is to promote eating disorder awareness. I have designed silicone wristbands that help promote awareness. All proceeds will be donated to the NEDA.The bands come in both large & small sizes. If you have any suggestions, please let me know what I can do to help raise awareness. Also if you would like to see any other custom objects or designs (shirts, keychains,etc..) please put in a request. I can do custom orders but keep in mind it will take time for the items to be designed.
